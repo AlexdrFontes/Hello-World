@@ -1,4 +1,4 @@
 # Hello-World
-This is the beggining of an era, at least for me.
+Lets kick some code!
 
-This is my opportunity to turn my live around, and I will do it!
+I am a grilled fish/meat person!
